@@ -1,4 +1,4 @@
-### Sofia’s Composition
+### ofia’s Composition
 
 HUMAN-CENTERED AI
 
